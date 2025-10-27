@@ -6,3 +6,4 @@
 
 
 #Instructions
+Wash chickpeas and put them in a blender
